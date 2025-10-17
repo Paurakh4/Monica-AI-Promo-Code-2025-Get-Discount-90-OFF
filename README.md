@@ -32,7 +32,7 @@ Using the code is as easy as tying your shoes! Follow these steps:
 3. **Enjoy Savings**: Watch the price drop like a rollercoaster!  
 
 ![Synthesia AI Discount Banner](https://i.ytimg.com/vi/wpcPk7p-NeU/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBjibDi1KYg_PZOs61EUK6f6qAUFA)
-## [Use This Link To Get 90% OFF](https://monica.im/invitation-affiliate?ref=mzzkyte&ref_aff=mzzkyte)
+## [Use This Link To Get 90% OFF](https://monica.im/invitation?c=ZIGEVPK5)
 ### **Why Use the Monica AI Promo Code 2025? 💡**  
 Here’s why you’ll love it:  
 - **Save Money**: Keep extra cash for ice cream or games!  
